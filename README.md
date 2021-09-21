@@ -9,6 +9,7 @@
 - 📫 How to reach me
   School Email (Primary): ghester1@stu.jsu.edu  
   Private Email: Graham.N.Hester@gmail.com
+  
   Personal Cell (Text works best): +1 (256)-393-9146
   
   
